@@ -1,2 +1,2 @@
-# Casibom - Casibom Giris - Casibom Yil Başı Bonusları
+# Casibom  - Casibom Giriş - Casibom Yılsonu Bonusları
 
